@@ -1,16 +1,14 @@
-## Hi there 👋
-
-<!--
-**JessieeXD/JessieeXD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Hi!! I'm Jessica but You can call me Jess!
+She/They pronouns 
+Pls don't try ponytown players I am happily taken!!
+A huge Danganronpa fan I mainly glaze THH though
+My favorite characters are Kiyotaka Ishimaru,Korekiyo Shinguji,Leon Kuwata and Kaito Momota
+I also love My Little Pony,Mortal Kombat and The Walking Dead Game!
+I'm a huge fan of scenecore, 6arelyhuman,Asteria,Odetari and more!
+9/1/25!! I love you so much baby!! 💗
+I love making friends,drawing and listening to music
+I enjoy playing roblox,using pinterest and yapping
+I'm a huge Amaguji,Ishimondo,Kaimaki and Leosaya shipper
+18 yrs old!
+I love Sanrio! My favorite character is Keroppi! lil silly guy :]
+If you see me on ponytown don't be afraid to say hi! send me a whisp go up to me! Just don't be a creep! <3!
