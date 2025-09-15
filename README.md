@@ -1,10 +1,10 @@
 Hi!! I'm Jessica but You can call me Jess or Leon I don't mind!!
-He/She/They pronouns 
+He/They/She pronouns 
 Pls don't try ponytown players I am happily taken!!
 A huge Danganronpa fan I mainly glaze THH though
 My favorite characters are Kiyotaka Ishimaru,Korekiyo Shinguji,Leon Kuwata and Kaito Momota!
-⚾ I am literally Leon Kuwata. The Ultimate Baseball Star!! ⚾ (Heavy Kin!) 
-I also kin Kiyotaka Ishimaru and Kaito Momota!!
+🎖️⚾ I am literally Leon Kuwata and Kiyotaka Ishimaru. The Ultimate Baseball Star and Moral Compass!! ⚾🎖️ (Heavy Kins!) 
+I also kin Kaito Momota a little bit. Check out my pronouns page to see more of my other kins!!
 I also love My Little Pony,Mortal Kombat and The Walking Dead Game!
 I'm a huge fan of scenecore, 6arelyhuman,Asteria,Odetari and more!
 9/1/25!! I love you so much baby!! 💗
