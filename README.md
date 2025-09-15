@@ -3,7 +3,8 @@ He/She/They pronouns
 Pls don't try ponytown players I am happily taken!!
 A huge Danganronpa fan I mainly glaze THH though
 My favorite characters are Kiyotaka Ishimaru,Korekiyo Shinguji,Leon Kuwata and Kaito Momota!
-⚾ I am literally Leon Kuwata. The Ultimate Baseball Star!! ⚾
+⚾ I am literally Leon Kuwata. The Ultimate Baseball Star!! ⚾ (Heavy Kin!) 
+I also kin Kiyotaka Ishimaru and Kaito Momota!!
 I also love My Little Pony,Mortal Kombat and The Walking Dead Game!
 I'm a huge fan of scenecore, 6arelyhuman,Asteria,Odetari and more!
 9/1/25!! I love you so much baby!! 💗
