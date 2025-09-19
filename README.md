@@ -7,7 +7,6 @@ My favorite characters are Kiyotaka Ishimaru,Korekiyo Shinguji,Leon Kuwata and K
 I also kin Kaito Momota a little bit. Check out my pronouns page to see more of my other kins!!
 I also love My Little Pony,Mortal Kombat and The Walking Dead Game!
 I'm a huge fan of scenecore, 6arelyhuman,Asteria,Odetari and more!
-9/1/25!! I love you so much baby!! 💗
 I love making friends,drawing and listening to music!
 I enjoy playing roblox,using pinterest and yapping!
 I'm a huge Amaguji,Ishimondo,Oumota and Leosaya shipper!
