@@ -1,4 +1,4 @@
-Hi!! I'm Jessica but You can call me Jess or Leon I don't mind!!
+Hi!! I'm Jessica but You can call me Jess/Jessie,Taka or Leon I don't mind!!
 He/They/She pronouns 
 A huge Danganronpa fan I mainly glaze THH though
 My favorite characters are Kiyotaka Ishimaru,Korekiyo Shinguji,Leon Kuwata and Kaito Momota!
