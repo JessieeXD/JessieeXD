@@ -11,4 +11,5 @@ Making me and my friends uncomfortable will make you get hidden or instablocked.
 Anyway thank you for reading and have a good day/night!!
 <img width="250" height="423" alt="17601552599411586280720258244035" src="https://github.com/user-attachments/assets/bb663424-d385-4605-b464-e0e57ba5311b" /> 
 ![17601555682517849241977409822177](https://github.com/user-attachments/assets/10e13acf-693e-491e-a479-a5a056ea2497)  
-![17601557091008388838832445316286](https://github.com/user-attachments/assets/9c018910-d859-4430-89e2-9c40d7d57e0f)
+![17601557091008388838832445316286](https://github.com/user-attachments/assets/9c018910-d859-4430-89e2-9c40d7d57e0f) 
+![17601558181171007503087380975375](https://github.com/user-attachments/assets/41342dd4-c7f1-46ff-b3ae-324c2314e29f)
