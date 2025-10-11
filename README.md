@@ -4,6 +4,8 @@ I love meeting new people and I'm a huge Taka kinnie!! I go by any pronouns and 
 <img width="611" height="560" alt="1760153418803326800724264230479" src="https://github.com/user-attachments/assets/775fc2d2-3e09-48b5-b126-22b3136f1f20" />
 Please dni if you are a disgusting/rude person. This includes proshippers,racists,homophobes and more
 <img width="367" height="560" alt="17601535752887711786730813723314" src="https://github.com/user-attachments/assets/6ec2f3d8-5b69-4337-b8da-3d4c06adfd4c" />
+I am a very emotional person and get upset easily so please try to be careful with what you say and tone tags are appreciated!!
+<img width="456" height="502" alt="17601538505114207418750271116495" src="https://github.com/user-attachments/assets/02cef446-38d4-4f10-b74f-3bb23287115a" />
 
 
 *currently updating!!*
