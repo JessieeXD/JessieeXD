@@ -8,6 +8,9 @@ I am a very emotional person and can get upset easily so please try to be carefu
 <img width="456" height="502" alt="17601538505114207418750271116495" src="https://github.com/user-attachments/assets/02cef446-38d4-4f10-b74f-3bb23287115a" />
 Making me and my friends uncomfortable will make you get hidden or instablocked. Please don't troll with me.
 <img width="639" height="560" alt="17601542882004468414890277955773" src="https://github.com/user-attachments/assets/3aeca50b-43a6-4824-b1c9-5e35a80f2050" />
+Literally me and you.. (ILYSM💗)
+<img width="466" height="407" alt="17604099979001979128919141973250" src="https://github.com/user-attachments/assets/deaa3433-f71e-4c26-905d-051b30d45945" />
+
 Anyway thank you for reading and have a good day/night!!
 <img width="250" height="423" alt="17601552599411586280720258244035" src="https://github.com/user-attachments/assets/bb663424-d385-4605-b464-e0e57ba5311b" /> 
 ![17601555682517849241977409822177](https://github.com/user-attachments/assets/10e13acf-693e-491e-a479-a5a056ea2497)  
