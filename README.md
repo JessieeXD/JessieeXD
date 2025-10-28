@@ -1,4 +1,4 @@
-Hii!! My name is Jess! You can also call me Jessie and Hiro! (wip!!)
+Hii!! My name is Jess! You can also call me Jessie and Hiro!
 <img width="638" height="560" alt="17616111447001917992136843382507" src="https://github.com/user-attachments/assets/00cddd0a-e094-4496-830a-ee441464547e" />
 I can get a bit emotional easily so when talking to me it would be nice to have tone tags! Not necessary but greatly appreciated!
 <img width="641" height="560" alt="17616120650733550486495327591158" src="https://github.com/user-attachments/assets/295f5ed3-b132-4585-8e65-400fa0d73eaf" />
