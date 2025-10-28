@@ -2,7 +2,7 @@ Hii!! My name is Jess! You can also call me Jessie and Hiro!
 <img width="638" height="560" alt="17616111447001917992136843382507" src="https://github.com/user-attachments/assets/00cddd0a-e094-4496-830a-ee441464547e" />
 I can get a bit emotional easily so when talking to me it would be nice to have tone tags! Not necessary but greatly appreciated!
 <img width="641" height="560" alt="17616120650733550486495327591158" src="https://github.com/user-attachments/assets/295f5ed3-b132-4585-8e65-400fa0d73eaf" />
-Some things about me? Well I love to draw,listen to music,be on TikTok and play Roblox/Ponytown! I am Pan and go by any pronouns! I enjoy scenecore and decora things! My favorite music artists are 6arelyhuman,Asteria,Odetari,Lumi Athena,Kets4eki and d3r! I also like Sanrio,Sonic,The Walking Dead game and being on Pinterest at times too!!
+Some things about me? Well I love to draw,listen to music,be on TikTok and play Roblox/Ponytown! I am Pan and go by any pronouns! I enjoy scenecore and decora things! My favorite music artists are 6arelyhuman,Asteria,Odetari,Lumi Athena,Kets4eki and d3r! I also like Mlp,Sanrio,Sonic,The Walking Dead game and being on Pinterest at times too!!
 <img width="638" height="560" alt="1761612348616937330188223010823" src="https://github.com/user-attachments/assets/b4e0f02d-20f4-4667-a150-1237d37bd056" />
 Making me/my friends uncomfortable or just being mean is a no no. You would get hidden super quickly so please don't do anything weird when interacting.
 <img width="806" height="560" alt="17616126327492561359071615359424" src="https://github.com/user-attachments/assets/b15de936-3621-49e7-bba9-6bf07a2135c4" />
