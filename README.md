@@ -6,7 +6,8 @@ Some things about me? Well I love to draw,listen to music,be on TikTok and play 
 <img width="638" height="560" alt="1761612348616937330188223010823" src="https://github.com/user-attachments/assets/b4e0f02d-20f4-4667-a150-1237d37bd056" />
 Making me/my friends uncomfortable is a no no. You would get hidden super quickly so please don't do anything weird when interacting.
 <img width="806" height="560" alt="17616126327492561359071615359424" src="https://github.com/user-attachments/assets/b15de936-3621-49e7-bba9-6bf07a2135c4" />
-
+Please Dni if you're a proshipper,homophobe or just a flipping weirdo. Just long story short don't be rude or a creep. Thanks.
+<img width="705" height="560" alt="17616132080382522119935606316816" src="https://github.com/user-attachments/assets/e8f03f97-0b0a-496c-9862-820684c80670" />
 ![17601555682517849241977409822177](https://github.com/user-attachments/assets/10e13acf-693e-491e-a479-a5a056ea2497)  
 ![17601557091008388838832445316286](https://github.com/user-attachments/assets/9c018910-d859-4430-89e2-9c40d7d57e0f) 
 ![17601558181171007503087380975375](https://github.com/user-attachments/assets/41342dd4-c7f1-46ff-b3ae-324c2314e29f)
