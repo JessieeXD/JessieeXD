@@ -2,6 +2,8 @@ Hii!! My name is Jess! You can also call me Jessie and Hiro! (wip!!)
 <img width="638" height="560" alt="17616111447001917992136843382507" src="https://github.com/user-attachments/assets/00cddd0a-e094-4496-830a-ee441464547e" />
 I can get a bit emotional easily so when talking to me it would be nice to have tone tags! Not necessary but greatly appreciated!
 <img width="641" height="560" alt="17616120650733550486495327591158" src="https://github.com/user-attachments/assets/295f5ed3-b132-4585-8e65-400fa0d73eaf" />
+Some things about me? Well I love to draw,listen to music,be on TikTok and play Roblox/Ponytown! I am Pan and go by any pronouns! I enjoy scenecore and decora things!
+<img width="638" height="560" alt="1761612348616937330188223010823" src="https://github.com/user-attachments/assets/b4e0f02d-20f4-4667-a150-1237d37bd056" />
 
 
 ![17601555682517849241977409822177](https://github.com/user-attachments/assets/10e13acf-693e-491e-a479-a5a056ea2497)  
