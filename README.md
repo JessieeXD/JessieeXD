@@ -2,6 +2,8 @@
 
 Hii! I'm Jess! I also don't mind if you call me Jessie/Taka!
 <img width="819" height="560" alt="17624960661615528895033130980111" src="https://github.com/user-attachments/assets/e59b11cf-22a1-4e89-ae64-e6543941ba87" />
+Some things about me is that I love to draw,listen to music,hanging out with my friends and being on Pinterest,TikTok and Ponytown! I am obsessed with scenecore and decora things! I go by any pronouns and I like to meet new people! I am a huge Kiyotaka Ishimaru and Sir Pentious Kinnie!!
+<img width="611" height="560" alt="17624962019704757159935527203999" src="https://github.com/user-attachments/assets/0c99667c-b62f-4cdc-892d-8a4202c9953a" />
 
 ![17601555682517849241977409822177](https://github.com/user-attachments/assets/10e13acf-693e-491e-a479-a5a056ea2497)  
 ![17601557091008388838832445316286](https://github.com/user-attachments/assets/9c018910-d859-4430-89e2-9c40d7d57e0f) 
