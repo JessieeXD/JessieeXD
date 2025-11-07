@@ -6,6 +6,8 @@ Some things about me is that I love to draw,listen to music,hanging out with my 
 <img width="611" height="560" alt="17624962019704757159935527203999" src="https://github.com/user-attachments/assets/0c99667c-b62f-4cdc-892d-8a4202c9953a" />
 Standard DNI list..Just don't be a creep or very rude. And please do not think on flirting/hitting on me. I am happily in a relationship and I'm not interested so sorry.
 <img width="367" height="560" alt="17624967055184856566562515154376" src="https://github.com/user-attachments/assets/0ce39aa5-1912-44e9-9a05-26163640f265" />
+Anyway that's it have a good day/night!!
+<img width="250" height="423" alt="17624971430426458981608164488941" src="https://github.com/user-attachments/assets/310d68a2-3efe-4f5a-bf55-300da72ee1e1" />
 
 ![17601555682517849241977409822177](https://github.com/user-attachments/assets/10e13acf-693e-491e-a479-a5a056ea2497)  
 ![17601557091008388838832445316286](https://github.com/user-attachments/assets/9c018910-d859-4430-89e2-9c40d7d57e0f) 
