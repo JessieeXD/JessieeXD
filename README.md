@@ -1,6 +1,5 @@
 Yo! The Name's Leon Kuwata! What's Up? 
 wip
-<img width="487" height="560" alt="17770748231312194365996470677727" src="https://github.com/user-attachments/assets/0aee23fb-3617-4fd1-8e67-39110500cd70" />
 
 
 ![17601555682517849241977409822177](https://github.com/user-attachments/assets/10e13acf-693e-491e-a479-a5a056ea2497)  
