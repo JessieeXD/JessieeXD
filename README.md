@@ -13,6 +13,9 @@ Standard DNI list..don't be rude or weird. Simple as that!
 
 I love scene! My favorite artists are currently 6arelyhuman,Asteria,Skillet and Andrew W.K!
 
+me reveal btw 
+<img width="736" height="726" alt="1777076306043838462795331302710" src="https://github.com/user-attachments/assets/45fc9b2d-beeb-4cb1-9a85-fd7850488589" />
+
 Literally my f/o..GOD I LOVE HIM
 <img width="1128" height="1043" alt="17770761582737423120591525921167" src="https://github.com/user-attachments/assets/ab45c0bf-2a16-4b69-8d34-968971311f57" />
 
