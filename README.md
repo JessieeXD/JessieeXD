@@ -1,23 +1,25 @@
 "Yo! The Name's Leon Kuwata! What's Up?"
 
 
-Hey!! I'm Jess but I would prefer if you call me Leon!
+•Hey!! I'm Jess but I would prefer if you call me Leon!
 
-Leon fictkin and Daiya yumeshipper!!
+•Leon fictkin and Daiya yumeshipper!!
 
-Currently debating on pronouns but any is fine as of rn!
+•Currently debating on pronouns but any is fine as of rn!
 
-I am usually if not always in the 18+ server! Feel free to interact I don't mind,I like meeting new people!! (Sorry if I become too much!!)
+•I am usually if not always in the 18+ server! Feel free to interact I don't mind,I like meeting new people!! (Sorry if I become too much!!)
 
-Standard DNI list..don't be rude or weird. Simple as that! 
+•Standard DNI list..don't be rude or weird. Simple as that! 
 
-I love scene! My favorite artists are currently 6arelyhuman,Asteria,Skillet and Andrew W.K!
-
-me reveal btw 
-<img width="736" height="726" alt="1777076306043838462795331302710" src="https://github.com/user-attachments/assets/45fc9b2d-beeb-4cb1-9a85-fd7850488589" />
+•I love scene! My favorite artists are currently 6arelyhuman,Asteria,Skillet and Andrew W.K!
 
 Literally my f/o..GOD I LOVE HIM
 <img width="1128" height="1043" alt="17770761582737423120591525921167" src="https://github.com/user-attachments/assets/ab45c0bf-2a16-4b69-8d34-968971311f57" />
+
+okay see ya!!
+<img width="519" height="591" alt="17770764050355613258162224938690" src="https://github.com/user-attachments/assets/2e69f483-0c64-44c4-8e38-a04c35924364" />
+
+<img width="736" height="726" alt="1777076306043838462795331302710" src="https://github.com/user-attachments/assets/45fc9b2d-beeb-4cb1-9a85-fd7850488589" />
 
 ![17601555682517849241977409822177](https://github.com/user-attachments/assets/10e13acf-693e-491e-a479-a5a056ea2497)  
 ![17601557091008388838832445316286](https://github.com/user-attachments/assets/9c018910-d859-4430-89e2-9c40d7d57e0f) 
