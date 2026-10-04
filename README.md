@@ -11,6 +11,7 @@ I enjoy meeting new people!!
 I am 19 years old!
 I yumeship with Scourge The Hedgehog and Daiya Owada!
 Happily Taken!
+I love Sanrio,MLP,Sonic,Danganronpa and much more!!
 
 DNI:
 My dni list is pretty simple I ask for NO trolls to interact with me as they have been irritating me lately!
