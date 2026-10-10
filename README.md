@@ -11,11 +11,8 @@ $\color{#50c878}{\textit{is 6arelyhuman!}}$
 $\color{#50c878}{\textit{Happily Taken!}}$
 $\color{#50c878}{\textit{and Scourge yumeshipper!}}$
 
-$\color{#50c878}{\textit{DNI list!!}}$
-$\color{#50c878}{\textit{Trolls, Transphobic/Homophobic people}}$
-$\color{#50c878}{\textit{T***p supporters}}$
-$\color{#50c878}{\textit{Proshippers,Loli/Shotacons!}}$
-$\color{#50c878}{\textit{Kin sharers!}}$
+$\color{#50c878}{\textit{basic dni list!!}}$
+$\color{#50c878}{\textit{plus kin sharers!}}$
 
 
 $\color{#50c878}{\textit{feel free to interact}}$
