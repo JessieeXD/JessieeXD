@@ -1,7 +1,7 @@
 $\color{#50c878}{\textit{Hey I'm Jess or Manic!}}$
 <img width="540" height="540" alt="tumblr_notb74ywQl1uouf1fo1_540" src="https://github.com/user-attachments/assets/5d020fc2-3dca-46e1-b683-9c39d0d33fcb" />
 $\color{#50c878}{\textit{About me!!}}$
-$\color{#50c878}{\textit{I am a Manic The Hedgehog fictkin!!}}$
+$\color{#50c878}{\textit{I am a Manic fictkin!!}}$
 $\color{#50c878}{\textit{19 yrs!!}}$
 $\color{#50c878}{\textit{I like sanrio,mlp,sonic and danganronpa!}}$
 $\color{#50c878}{\textit{I love scenecore and my fav artist}}$
