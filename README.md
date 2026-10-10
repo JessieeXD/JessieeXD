@@ -14,7 +14,8 @@ $\color{#50c878}{\textit{Trolls, Transphobic/Homophobic people}}$
 $\color{#50c878}{\textit{T***p supporters}}$
 $\color{#50c878}{\textit{Proshippers,Loli/Shotacons!}}$
 $\color{#50c878}{\textit{Kin sharers!}}$
-<img width="220" height="154" alt="manic-the-hedgehog-sega" src="https://github.com/user-attachments/assets/c7bbaa29-85c1-49ea-a576-2e0f9937
+<img width="220" height="154" alt="manic-the-hedgehog-sega" src="https://github.com/user-attachments/assets/eb50d68a-31d1-43b2-b4cd-bd5d23f48837" />
+
 
 ![17601555682517849241977409822177](https://github.com/user-attachments/assets/10e13acf-693e-491e-a479-a5a056ea2497)  
 ![17601557091008388838832445316286](https://github.com/user-attachments/assets/9c018910-d859-4430-89e2-9c40d7d57e0f) 
