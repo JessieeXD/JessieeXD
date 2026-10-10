@@ -1,4 +1,5 @@
 $\color{#50c878}{\textit{୨୧ ⏔⏔⏔♡⏔⏔⏔ ୨୧}}$
+
 $\color{#50c878}{\textit{Hey I'm Jess or Manic!}}$
 
 $\color{#50c878}{\textit{About me!!}}$
