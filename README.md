@@ -19,6 +19,8 @@ $\color{#50c878}{\textit{feel free to interact}}$
 $\color{#50c878}{\textit{i love meeting new people!}}$
 <img width="220" height="165" alt="manic-the-hedgehog-manic" src="https://github.com/user-attachments/assets/3a137db3-51f3-4d3b-b2db-78f8ab9bb2fe" />
 <img width="220" height="165" alt="manic-the-hedgehog-looking-up" src="https://github.com/user-attachments/assets/f3f8cdf9-de17-48e6-a739-f716cd472dbf" />
+<img width="220" height="154" alt="manic-the-hedgehog-sega" src="https://github.com/user-attachments/assets/2d9f4dc3-ed72-48ef-9407-0b95331ccfca" />
+
 
 $\color{#50c878}{\textit{me and bro fr}}$
 <img width="1080" height="608" alt="2f56a438501e8a0696a1c3d30d052a688c1eb04dfe55fc4af28503af93508d41 _SX1080_FMjpg_" src="https://github.com/user-attachments/assets/f6c44993-88cd-4af5-9fd2-2788206adb98" />
